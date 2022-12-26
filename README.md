@@ -1,1 +1,1 @@
-# adinath maderchod
+# adinath mc
